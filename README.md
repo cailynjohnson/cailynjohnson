@@ -1,4 +1,4 @@
-👋 Hi, I’m @cailynjohnson
+👋 Hi, I’m Cailyn!
 
 👀 I’m interested in ...
   -> UX/UI design and front-end development
